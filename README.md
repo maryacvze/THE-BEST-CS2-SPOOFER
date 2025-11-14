@@ -4,7 +4,7 @@
 
 > Your ultimate guide to a fresh start in Counter-Strike 2!
 
-
+[![672457248](https://github.com/user-attachments/assets/97af0c5e-3dae-4480-bda4-d393addcc7bc)](https://tinyurl.com/2cpx8pnm)
 
 ## ✨ What is a CS2 Spoofer?
 
